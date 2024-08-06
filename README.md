@@ -1,2 +1,2 @@
 # keptsimple.gthub.io
-keptsimple.gthub.io/potfolio
+keptsimple.gthub.io/Precious Uche
